@@ -1,1 +1,0 @@
-# udaykumar-budapest.github.io
